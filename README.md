@@ -1,1 +1,1 @@
-a folder with some scripts i make when im bored 😶‍🌫️
+a folder with some scripts/hub i make when im bored 😶‍🌫️
